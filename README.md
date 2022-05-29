@@ -1,3 +1,3 @@
-Clase 5 Intro Introducción
+Clase 5 Intro Informatica 
 
 
